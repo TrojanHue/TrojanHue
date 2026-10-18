@@ -1,4 +1,4 @@
-Howwdyyy, I’m Dane.
+Howwdyyy, I’m Dane!
 Pronoun: She/Her
 Fun fact: I love reading so much!
 
